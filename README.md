@@ -1,1 +1,1 @@
-# summer_school_2021_lcc
+# Summer School 2021 LCC
